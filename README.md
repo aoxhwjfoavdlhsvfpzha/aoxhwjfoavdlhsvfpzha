@@ -1,1 +1,1 @@
-Thanks for readingme.txt
+Read me? Nonono, read YOU!
